@@ -10,7 +10,7 @@ I am a Statistics B.S. major and Data Science minor at the University of Virgini
 - 👯 I’m looking to collaborate on anything, especially film sets
 - 🤔 I’m looking for help with nothing especially at the moment.
 - 💬 Ask me about film.
-- 📫 How to reach me: rowanrosenblum2@gmail.com
+- 📫 How to reach me: rowanrosenblum@gmail.com
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: Have a corgi named Iggy.
 
